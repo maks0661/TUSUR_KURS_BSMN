@@ -1,0 +1,1 @@
+# TUSUR_KURS_BSMN
